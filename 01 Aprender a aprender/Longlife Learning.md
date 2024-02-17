@@ -1,0 +1,3 @@
+--*Hoy día no podemos dejar de aprende.
+--20% de tu conocimiento es obsoleto en un año
+--5 años bastan para estar completamente fuera de las tendencias actuales

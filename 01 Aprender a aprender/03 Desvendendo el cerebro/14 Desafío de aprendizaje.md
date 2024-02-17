@@ -1,0 +1,1 @@
+Piensa en el próximo desafío de aprendizaje que tienes. ¿Cómo puedes, con base en los ejemplos del curso, romperlos en pequeños bloques y organizar tu proceso de aprendizaje?

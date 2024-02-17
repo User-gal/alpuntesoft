@@ -1,0 +1,7 @@
+- Descubre tu propósito y tus razones para aprender
+- Conoce y aprovecha de tu estilo de aprendizaje, creando planes efectivos
+- Aprende a como utilizar diferentes formatos, metodologias y experiencias para aprender de manera efectiva
+- Define y acompaña tu metas y evolución de manera simples y efectiva
+- Crea rutina productivas, eliminando distracciones
+- Desvenda y utiliza el poder de la neurociencia para alcanzar todo tu potencial
+- Utiliza las mejores técnicas y herramientas trabajando a tu favor para un aprendizaje de alta performance
