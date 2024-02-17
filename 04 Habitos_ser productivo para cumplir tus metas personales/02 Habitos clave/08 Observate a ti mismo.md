@@ -1,0 +1,9 @@
+Hemos visto que los hábitos clave pueden aportar muchos beneficios a nuestras vidas. Por ejemplo, si hago ejercicio puedo sentirme más predispuesto, si duermo lo suficiente puedo hacer más en el trabajo, si cuido mi alimentación puedo sentirme más saludable. ¿Recuerdas haber practicado algún hábito que te trajo otros beneficios? Si no lo recuerdas, mantente en sintonía con tus hábitos y comienza a observar las ganancias que obtienes al practicar ciertos hábitos.
+
+VER OPINIÓN DEL INSTRUCTOR
+
+### Opinión del instructor
+
+- [](https://app.aluracursos.com/suggestions/new/habitos-productivo-metas-personales/72973/opinion)
+
+En mi caso, al crear el hábito de practicar yoga, me di cuenta que estoy menos ansiosa. Eso hace que no sienta necesidad de comer fuera de los horarios de las comidas habituales y me ayuda a mantener mi peso.
