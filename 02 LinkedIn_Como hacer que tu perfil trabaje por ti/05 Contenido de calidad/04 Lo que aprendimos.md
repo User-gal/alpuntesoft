@@ -1,0 +1,5 @@
+Lo que aprendimos en esta aula:
+
+- Como atraer visualizaciones a nuestras publicaciones
+- Tips para dejar nuestros posts más atractivos
+- El contenido siempre será nuestro aliado en LinkedIn
